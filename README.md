@@ -7,4 +7,4 @@ Usage of the files
 3. Enjoy 
 4. Rate me.on Github
 
-Pro version available at http://bikramthapa.com.np/projects/pdf-split
+Pro version available on Demand, ping meto know pro features.
